@@ -22,5 +22,4 @@
 
 ⚡ Fun facts about me:
   - I am cartography lover
-  - Podcaster and...
-  - HUGE/BIG/VERY fan of Lin Manuel-Miranda, SO *I AM NOT THROWIN AWAY MY SHOT!*
+  - Podcaster
